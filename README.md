@@ -1,2 +1,2 @@
-# Nokore-dev
+# Nokore.dev
 ＮＯＫＯＲΞ ［ＴＷＩ ： ＴＲＵＴＨ］
